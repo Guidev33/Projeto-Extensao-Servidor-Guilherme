@@ -16,6 +16,7 @@ Este projeto de extensão visa proporcionar aos alunos do curso de Arquitetura d
 https://www.edrawmind.com/app/editor/b9vkeWhgyzYEwBZUL0pFacA6ex2DIdWb?ivt=01wFzmBMq3fYlUEieZUGgDAyZ4249q7p001&page=7297149436004
 
 ## Link para o Podcast
+https://open.spotify.com/episode/18G4PJPsgNUgEx0UAW0tWz?si=wFtnPliLQbWesuCrPeze0w
 
 ## Link para o QUIZ
 
